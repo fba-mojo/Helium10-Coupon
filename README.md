@@ -51,6 +51,8 @@ Let's see how much you can save with these coupon codes:
 - Regular monthly price: $39
 - With 10% OFF (BLOGE10): $35.10/month ongoing
 
+[![Helium10 Discount Coupon 3](https://res.cloudinary.com/drzqec0oi/image/upload/v1747051673/Helium10_Discount_Coupon_3_ksimje.jpg)](https://crushtrk.com/?a=3109&c=748&p=r&s5=PURL-027121%C2%A0)
+
 ## What Features Do These Coupons Unlock?
 
 When you apply these Helium 10 discount codes, you gain access to powerful Amazon seller tools that include:
@@ -70,6 +72,8 @@ The best coupon code for you depends on your specific situation:
 - **Best for Maximum Short-Term Savings:** Use `MAY202535OFF` for 35% off the Platinum plan for 6 months if you're applying today (May 12, 2025).
 - **Best for New Sellers:** The `BLOGE6M20` code (20% off for 6 months) offers a good balance of savings and flexibility for those just starting out.
 - **Best for Long-Term Users:** `BLOGE10` provides 10% ongoing savings, which adds up significantly over time if you plan to use Helium 10 for more than 6 months.
+
+[![Helium10 Discount Coupon 4](https://res.cloudinary.com/drzqec0oi/image/upload/v1747051672/Helium10_Discount_Coupon_4_fqazhy.jpg)](https://crushtrk.com/?a=3109&c=748&p=r&s5=PURL-027121%C2%A0)
 
 ## Special Seasonal Promotions
 
