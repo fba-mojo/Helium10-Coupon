@@ -19,6 +19,8 @@ This evergreen coupon provides a 20% discount on Helium 10's Platinum or Diamond
 **BLOGE10 - 10% OFF Monthly (Lifetime)**  
 For those seeking long-term value, this code gives you a permanent 10% discount on any Helium 10 monthly plan for as long as you maintain your subscription. This is ideal for users planning to use Helium 10 indefinitely.
 
+[![Helium10 Discount Coupon 2](https://res.cloudinary.com/drzqec0oi/image/upload/v1747051673/Helium10_Discount_Coupon_2_xkhrd7.jpg)](https://crushtrk.com/?a=3109&c=748&p=r&s5=PURL-027121%C2%A0)
+
 ## How to Redeem Your Helium 10 Coupon
 
 Applying your Helium 10 discount is straightforward:
